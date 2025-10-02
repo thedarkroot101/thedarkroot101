@@ -1,7 +1,7 @@
 # 💫 About Darkroot101:
 🎓 B.Tech in Computer Science & Engineering  <br>🌏 From India | Living & learning in code and hacks the dreams  <br>
 ## 🎭 Interests  
-🎌 Anime lover<br> 🔐 Cybersecurity & hacking <br> ㊙️ Japanese learner (goal: JLPT N1) <br> 🕶️ Anonymity & digital privacy enthusiast  <br> 🛠️ DIY builder  (Love to build from scratch)   <br> 🗾 Dreaming of a happy & peaceful life in Japan   <br><br><br>🕯 Quote  <br>*“Roots grow in silence, unseen but they crack concrete.”*  <br>
+🎌 Anime lover<br> 🔐 Cybersecurity & hacking <br> ㊙️ Japanese learner (goal: JLPT N1) <br> 🕶️ Anonymity & digital privacy enthusiast  <br> 🛠️ DIY builder  (Love to build from scratch)   <br> 🌸 Dreaming of a happy & peaceful life in Japan  <br><br><br>🕯 Quote  <br>*“Roots grow in silence, unseen but they crack concrete.”*  <br>
 
 
 ## 🌐 Socials:
